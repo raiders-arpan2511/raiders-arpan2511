@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Arpan Hazra
-- 👀 I’m interested in Penetration Testing and Information Security
+- 👀 I’m confused in still finding my niche but am contionously trying to find my niche.
 - 🌱 I’m currently learning about InfoSec. 
 - 📫 How to reach me my gmail => raiders.arpan2511@gmail.com
 
